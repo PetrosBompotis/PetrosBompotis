@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **petrosbompotis@gmail.com**
 
-- ⚡ Fun fact **I like video games!**
+- ⚡ Fun fact **I like video games**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
